@@ -1,4 +1,4 @@
-# 
+# Experience scary shawarma kiosk like never before with scary shawarma kiosk Script advanced, the #1 Script. Includes auto-upgrade and teleport for
 
 
 
